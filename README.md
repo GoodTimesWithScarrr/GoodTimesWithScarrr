@@ -1,9 +1,12 @@
 <div align=center>
+
 $${\color{#112b61} ˖᯽ ݁˖ \space name \space ! \space ᯓ★}$$
 
 $${\color{#264585FF} ⊱ ۫ ׅ ✧ \space prn \space / \space prn \space :: \space prn \space / \space prn \space ⊹ ࣪ ˖ }$$
 
 $${\color{#3d60a8} ๋ ࣭ ⭑ \space txt \space txt \space txt \space txt \space txt \space txt \space txt \space ༉‧₊˚. }$$
+
+![f56f5830736f412f1a6f78b873a2be56__fliter--cherry-icecream__channel--red__mode--lighten](https://github.com/user-attachments/assets/e4b62810-a430-4051-82e4-4e7972a6a0b6)
 
 <details>
 <summary>$${\color{#3d60a8} 𓏲 ๋࣭ ࣪ ˖ \space about \space me \space ! \space ؛ ଓ}$$</summary>
