@@ -11,7 +11,7 @@ $${\color{#843945} ˖᯽ ݁˖ \space loon \space ! \space ᯓ★}$$
 
 $${\color{#f89255} ⊱ ۫ ׅ ✧ \space they \space / \space them \space pref \space ⊹ ࣪ ˖ }$$
 
-$${\color{#adb5a8} ๋ ࣭ ⭑ \space  \space txt \space txt \space txt \space txt \space txt \space txt \space ༉‧₊˚. }$$
+$${\color{#adb5a8} ๋ ࣭ ⭑ \space  \space fictionkin \space ༉‧₊˚. }$$
 
 ![f56f5830736f412f1a6f78b873a2be56__fliter--cherry-icecream__channel--red__mode--lighten](https://github.com/user-attachments/assets/e4b62810-a430-4051-82e4-4e7972a6a0b6)
 
