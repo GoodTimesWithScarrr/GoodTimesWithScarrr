@@ -21,7 +21,7 @@ $${\color{#adb5a8} ๋ ࣭ ⭑ \space  \space fictionkin \space ༉‧₊˚. }$$
 <details>
 <summary> $${\color{#adb5a8} ◟♯ . \space links \space ! \space »➝}$$ </summary>
 
-[ata](https://ch4nc3.atabook.org/)
+[ata](https://scarredbythegoodtimes.atabook.org/)
 , [prns](https://pronouns.cc/@loonz)
 , [straw](https://thehunterpedia.straw.page/)
 , [guns](https://guns.lol/loonytoony)
